@@ -1,0 +1,1 @@
+# IHG-managed-or-franchised
